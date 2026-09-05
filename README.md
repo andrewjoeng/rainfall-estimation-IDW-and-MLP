@@ -71,4 +71,4 @@ Peta klimatologi bulanan hasil pemodelan (2001–2014) — lihat `assets/climato
 
 ## Kontak
 
-[Nama Kamu] — [email] · [LinkedIn] · [GitHub]
+Ignatius Andrew Joeng — i.andrewjoeng@gmail.com · Ignatius Andrew Joeng · andrewjoeng
